@@ -14,7 +14,7 @@
   
   📘 Pusan National University Trade, Computer Science and Engineering (2020/03 ~ 2024/02)
   <br/>
-  🖥️ Samsung Software Academy For Youth, SSAFY 11th (2024/01 ~ )
+  🖥️ Samsung Software Academy For Youth, SSAFY 11th (2024/01 ~ 2024/12)
 </p>
 <br/>
  
